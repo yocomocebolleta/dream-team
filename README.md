@@ -1,2 +1,2 @@
 # dream-team
-tienda de ropa 
+diamonds and sparkles
